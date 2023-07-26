@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **java, c++**
 
-- 📫 How to reach me **yuri.dlouhy1@gmail.com**
+- 📫 How to reach me **yuridlouhy@protonmail.com**
 
 - ⚡ Fun fact **if you didn't stop studying when get old, you gonna get more and more experience**
 
